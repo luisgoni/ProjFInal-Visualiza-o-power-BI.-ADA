@@ -14,4 +14,7 @@
 - Luciana Otavio Nunes -
     [Linkedin](https://www.linkedin.com/in/luhonunes/)
 
+- Sávio Murillo -
+    [Linkedin](https://www.linkedin.com/in/saviomurillo/)
+
   
