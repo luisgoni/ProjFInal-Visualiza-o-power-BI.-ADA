@@ -3,18 +3,18 @@
 ##---- Vai Ter nome o grupo ? ------
 
 - Cleverson Guandalin -
-    [Linkedin](https://www.linkedin.com/in/cleversonguandalin)
+   ![enter image description here](https://cdn-icons-png.flaticon.com/24/3536/3536505.png) [Linkedin](https://www.linkedin.com/in/cleversonguandalin)
 
 -  João Varella -
-    [Linkedin](https://www.linkedin.com/in/jo%C3%A3o-varella-0ba046284/)
+    ![enter image description here](https://cdn-icons-png.flaticon.com/24/3536/3536505.png)[Linkedin](https://www.linkedin.com/in/jo%C3%A3o-varella-0ba046284/)
 
 - Luis Gustavo Amaral -
-    [Linkedin](https://www.linkedin.com/in/luisgoni-amaral/)
+  ![enter image description here](https://cdn-icons-png.flaticon.com/24/3536/3536505.png) [Linkedin](https://www.linkedin.com/in/luisgoni-amaral/)
 
 - Luciana Otavio Nunes -
-    [Linkedin](https://www.linkedin.com/in/luhonunes/)
+    ![enter image description here](https://cdn-icons-png.flaticon.com/24/3536/3536505.png)[Linkedin](https://www.linkedin.com/in/luhonunes/)
 
 - Sávio Murillo -
-    [Linkedin](https://www.linkedin.com/in/saviomurillo/)
+   ![enter image description here](https://cdn-icons-png.flaticon.com/24/3536/3536505.png) [Linkedin](https://www.linkedin.com/in/saviomurillo/)
 
   
