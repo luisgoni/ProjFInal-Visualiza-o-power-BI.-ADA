@@ -1,6 +1,5 @@
 # ProjFinal-Visualizaçao-Power-BI./Parceria-ADA-Tech.
 ## Trabalho em Grupo Modulo-6
-##---- Vai Ter nome o grupo ? ------
 
 - Cleverson Guandalin -
    ![enter image description here](https://cdn-icons-png.flaticon.com/24/3536/3536505.png) [Linkedin](https://www.linkedin.com/in/cleversonguandalin)
